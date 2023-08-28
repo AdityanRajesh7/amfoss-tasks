@@ -13,3 +13,5 @@ I wish to learn more about coding in general. I have a good hold on the basics o
 
 ### HOW i WOULD CONTRIBUTE BACK TO THE CLUB
 I will do my best to learn from my mentors, and then later omn assist them for the club activities. I believe that I have what it takes to be the guy who continues the legacy of the club in the future.
+
+### FEEDBACK
